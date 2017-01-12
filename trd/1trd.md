@@ -1,85 +1,57 @@
-#####  
+**PREFACIO**
+============
 
-######  
+ **Escudriñando Personalmente** **Cada Rayo de Luz---**Uno que deja a otro el escudriñar un mensaje del Señor, está haciendo de su brazo la carne, y así como un fatuo, actúa como si no tuviese entendimiento propio. Y “la mente que depende del criterio de otros se extraviará tarde o temprano”. La Educación, página 231.
 
-**TRATADO 1**
--------------
+ Asimismo, el que permite que el prejuicio le impida de una investigación cándida de cualquier cosa nueva, que le viene en el nombre del Señor, es inconscientemente un infiel.
 
- -- {1trd 2}   
-  
-  **PREFACIO**
+ También el que se siente satisfecho con sus conocimientos de la Palabra de Dios, dice efectivamente: “Yo soy rico y me he enriquecido, y de ninguna cosa tengo necesidad”.
 
-**Escudriñando Personalmente**
-
-**Cada Rayo de Luz**
-
-Uno que deja a otro el escudriñar un mensaje del Señor, está haciendo de su brazo la carne, y así como un fatuo, actúa como si no tuviese entendimiento propio. Y “la mente que depende del criterio de otros se extraviará tarde o temprano”. La Educación, página 231.
-
-Asimismo, el que permite que el prejuicio le impida de una investigación cándida de cualquier cosa nueva, que le viene en el nombre del Señor, es inconscientemente un infiel.
-
-También el que se siente satisfecho con sus conocimientos de la Palabra de Dios, dice efectivamente: “Yo soy rico y me he enriquecido, y de ninguna cosa tengo necesidad”.
-
-Todos estos, de diversas maneras, desempeñando el papel que provocó la condenación escrita contra los laodicenses, y cumpliendo la profecía que no debieran cumplir, se están preparando para ser vomitados (Apocalipsis 3:14-18). Y si siguen en esa actitud de suficiencia propia, creyendo que tienen toda la verdad, y que de ninguna cosa tienen necesidad, rechazarán a todo nuevo mensajero de verdad igual que el mensaje, porque este viene mediante una vía inesperada. Ciertamente, entonces, si este Tratado no estuviese revelando la profecía, el hecho es
+ Todos estos, de diversas maneras, desempeñando el papel que provocó la condenación escrita contra los laodicenses, y cumpliendo la profecía que no debieran cumplir, se están preparando para ser vomitados (Apocalipsis 3:14-18). Y si siguen en esa actitud de suficiencia propia, creyendo que tienen toda la verdad, y que de ninguna cosa tienen necesidad, rechazarán a todo nuevo mensajero de verdad igual que el mensaje, porque este viene mediante una vía inesperada. Ciertamente, entonces, si este Tratado no estuviese revelando la profecía, el hecho es inevitable que cuando la revelación viniera, tratarían ésta de igual manera, y por lo tanto perderían su salvación!
 
  -- {1trd 3}   
   
-  inevitable que cuando la revelación viniera, tratarían ésta de igual manera, y por lo tanto perderían su salvación!
+   A través de las edades, todos quienes han puesto su confianza en los así llamados sabios, los Cristianos más destacados de su época, todos bien conocidos como hombres piadosos, por medio de estos mismos hombres han sido privados de la corona de vida eterna, semejante a los laicos Judíos en tiempo de Cristo por no querer encargarse, ellos mismos, plenamente de la responsabilidad de su salvación. Confiando presuntuosamente en la sabiduría de sus profesos “grandes hombres”, no quisieron creer las palabras de Cristo: “… Padre Señor del cielo y de la tierra … _escondiste_ estas cosas de los _sabios_ y de los entendidos y las revelaste a los niños”. Mateo 11:25. “¿Dónde está el sabio? ¿Dónde está el escriba? … ¿No ha enloquecido Dios la sabiduría del mundo?” 1 Corintios 1:20.
 
-A través de las edades, todos quienes han puesto su confianza en los así llamados sabios, los Cristianos más destacados de su época, todos bien conocidos como hombres piadosos, por medio de estos mismos hombres han sido privados de la corona de vida eterna, semejante a los laicos Judíos en tiempo de Cristo por no querer encargarse, ellos mismos, plenamente de la responsabilidad de su salvación. Confiando presuntuosamente en la sabiduría de sus profesos “grandes hombres”, no quisieron creer las palabras de Cristo: “… Padre Señor del cielo y de la tierra … _escondiste_ estas cosas de los _sabios_ y de los entendidos y las revelaste a los niños”. Mateo 11:25. “¿Dónde está el sabio? ¿Dónde está el escriba? … ¿No ha enloquecido Dios la sabiduría del mundo?” 1 Corintios 1:20.
+ " … Si se le presenta a usted un mensaje que no le resulte claro, tómese el trabajo de examinar las evidencias dadas por el mensajero, comparando una escritura con la otra, para averiguar si es sostenido por la palabra de Dios”. _Consejos sobre la Obra de la Escuela Sabática_, página 30.
 
-" … Si se le presenta a usted un mensaje que no le resulte claro, tómese el trabajo de examinar las evidencias dadas por el mensajero, comparando una escritura con la otra, para averiguar si es sostenido por la palabra de Dios”. _Consejos sobre la Obra de la Escuela Sabática_, página 30.
-
-“Hermano, Hermana, ¿no cesará usted de copiar los errores de otros? ¿No se aprovecha de ellos?. Si usted desea, entonces obligatoriamente, debiera usar su propio entendimiento para alcanzar la salvación, a no ser que falle de comprender la verdad que salve en la exposición tremenda y profunda de la
+ “Hermano, Hermana, ¿no cesará usted de copiar los errores de otros? ¿No se aprovecha de ellos?. Si usted desea, entonces obligatoriamente, debiera usar su propio entendimiento para alcanzar la salvación, a no ser que falle de comprender la verdad que salve en la exposición tremenda y profunda de la---**¡PRE - “UNDECIMA HORA” EXTRA!**
 
  -- {1trd 4}   
   
-  **¡PRE - “UNDECIMA HORA” EXTRA!**
+   **LOS DARDANELOS DE LA BIBLIA---**La llamada de Ezequiel al oficio profético es una de las experiencias más interesantes de los videntes antiguos, y la revelación de lo que vio en el río Quebar es tal vez de mayor importancia para el cielo y la tierra en esta época que cualquiera otra visión en el registro sagrado, porque de un modo notable, revela lo que une el Cielo con la Tierra, igual que los Dardanelos unen dos mares importantes. Por eso, este estudio de la visión de Ezequiel, que revela una visita de la Majestad del Universo a esta tierra, puede apropiadamente denominarse, “Los Dardanelos de la Biblia”.
 
-**LOS DARDANELOS DE LA BIBLIA**
+ El lector que quiera comprender mejor este simbolismo Bíblico, aparentemente tan enredado y confuso debiera seguir el dibujo sobre la portada junto con---**_La Descripción del Profeta de los Misterios Presentados Aquí_**
 
-La llamada de Ezequiel al oficio profético es una de las experiencias más interesantes de los videntes antiguos, y la revelación de lo que vio en el río Quebar es tal vez de mayor importancia para el cielo y la tierra en esta época que cualquiera otra visión en el registro sagrado, porque de un modo notable, revela lo que une el Cielo con la Tierra, igual que los Dardanelos unen dos mares importantes. Por eso, este estudio de la visión de Ezequiel, que revela una visita de la Majestad del Universo a esta tierra, puede apropiadamente denominarse, “Los Dardanelos de la Biblia”.
+ “Y miré, y he aquí un viento tempestuoso venia del aquilón, una gran nube, con un fuego envolvente, y en derredor suyo un resplandor, y en medio del fuego una cosa que parecía como de ámbar.
 
-El lector que quiera comprender mejor este simbolismo Bíblico, aparentemente tan enredado y confuso debiera seguir el dibujo sobre la portada junto con
-
-**_La Descripción del Profeta de los Misterios Presentados Aquí_**
-
-“Y miré, y he aquí un viento tempestuoso venia del aquilón, una gran nube, con un fuego envolvente, y en derredor suyo un resplandor, y en medio del fuego una cosa que parecía como de ámbar.
-
-Y en medio de ella, figura de cuatro seres vivientes. Y éste era su parecer; había en ellos semejanza de hombre. Y cada uno tenía cuatro rostros, y
+ Y en medio de ella, figura de cuatro seres vivientes. Y éste era su parecer; había en ellos semejanza de hombre. Y cada uno tenía cuatro rostros, y cuatro alas. Y los pies de ellos eran derechos, y la planta de sus pies como la planta de pie de becerro; y centelleaban a manera de bronce muy bruñido. Y debajo de sus alas, a sus cuatro lados, tenían manos de hombre; y sus rostros y sus alas por los cuatro lados. Con las alas se juntaban el uno al otro. No se volvían cuando andaban, cada uno caminaba en derecho de su rostro.
 
  -- {1trd 5}   
   
-  cuatro alas. Y los pies de ellos eran derechos, y la planta de sus pies como la planta de pie de becerro; y centelleaban a manera de bronce muy bruñido. Y debajo de sus alas, a sus cuatro lados, tenían manos de hombre; y sus rostros y sus alas por los cuatro lados. Con las alas se juntaban el uno al otro. No se volvían cuando andaban, cada uno caminaba en derecho de su rostro.
+   Y la figura de sus rostros era rostro de hombre, y rostro de león a la parte derecha en los cuatro, y a la izquierda rostro de buey en los cuatro; así mismo había en los cuatro rostro de águila.
 
-Y la figura de sus rostros era rostro de hombre, y rostro de león a la parte derecha en los cuatro, y a la izquierda rostro de buey en los cuatro; así mismo había en los cuatro rostro de águila.
+ Y vi apariencia como de ámbar, como apariencia de fuego dentro de ella en contorno, por el aspecto de sus lomos para arriba; y desde sus lomos para abajo, vi que parecía como fuego, y que tenía resplandor alrededor. Cual parece el arco del cielo que está en las nubes el día que llueve, así era el parecer del resplandor alrededor. Esta fue la visión de la semejanza de la gloria de Jehová. Y luego que yo la hube visto, caí sobre mi rostro, y oí voz de uno que hablaba”. Ezequiel 1:4-10, 27, 28.
 
-Y vi apariencia como de ámbar, como apariencia de fuego dentro de ella en contorno, por el aspecto de sus lomos para arriba; y desde sus lomos para abajo, vi que parecía como fuego, y que tenía resplandor alrededor. Cual parece el arco del cielo que está en las nubes el día que llueve, así era el parecer del resplandor alrededor. Esta fue la visión de la semejanza de la gloria de Jehová. Y luego que yo la hube visto, caí sobre mi rostro, y oí voz de uno que hablaba”. Ezequiel 1:4-10, 27, 28.
-
-“Y aconteció que, como mandó al _varón_ vestido de lienzos, diciendo: Toma fuego de entre las ruedas, de entre los querubines, él entró,
+ “Y aconteció que, como mandó al _varón_ vestido de lienzos, diciendo: Toma fuego de entre las ruedas, de entre los querubines, él entró, y paróse entre las ruedas”. Ezequiel 10:6.
 
  -- {1trd 6}   
   
-  y paróse entre las ruedas”. Ezequiel 10:6.
+   A esta maravillosa escena, la cual vio Ezequiel junto a la orilla del río en la tierra de los Caldeos, se nos llama la plena atención. Siendo “la visión de la semejanza de la gloria del Señor”, obviamente, entonces, este fue---**_El Señor sobre uno de sus Tronos_**
 
-A esta maravillosa escena, la cual vio Ezequiel junto a la orilla del río en la tierra de los Caldeos, se nos llama la plena atención. Siendo “la visión de la semejanza de la gloria del Señor”, obviamente, entonces, este fue
+ Además de esta semejanza divina que vio Ezequiel (Ezequiel 1:28), la Biblia nos revela a Dios entronado en tres otras ocasiones - una vez visto por Isaías, y dos veces visto por Juan el Revelador; a saber
 
-**_El Señor sobre uno de sus Tronos_**
+ (1) “… Vi yo al Señor sentado sobre un trono alto y sublime, y sus faldas henchían el templo. Y _encima_ de él estaban _serafines_. Cada uno tenía seis alas; con dos cubrían su rostro, y con dos cubrían sus pies, y con dos volaban. Y el uno al otro daba voces, diciendo: Santo, santo, santo, Jehová de los ejércitos, toda la tierra está llena de su gloria. Y los quiciales de las puertas se estremecieron con la voz del que clamaba, y la casa se llenó de humo”. Isaías 6: 1-4
 
-Además de esta semejanza divina que vio Ezequiel (Ezequiel 1:28), la Biblia nos revela a Dios entronado en tres otras ocasiones - una vez visto por Isaías, y dos veces visto por Juan el Revelador; a saber
-
-(1) “… Vi yo al Señor sentado sobre un trono alto y sublime, y sus faldas henchían el templo. Y _encima_ de él estaban _serafines_. Cada uno tenía seis alas; con dos cubrían su rostro, y con dos cubrían sus pies, y con dos volaban. Y el uno al otro daba voces, diciendo: Santo, santo, santo, Jehová de los ejércitos, toda la tierra está llena de su gloria. Y los quiciales de las puertas se estremecieron con la voz del que clamaba, y la casa se llenó de humo”. Isaías 6: 1-4
-
-(2) “Y luego fui en Espíritu; y he aquí, un trono que estaba puesto en el cielo, y sobre el trono estaba uno sentado… y alrededor del trono había veinticuatro sillas; y vi sobre las sillas veinticuatro ancianos sentados, vestidos de ropas blancas; y tenían sobre sus cabezas _coronas_
+ (2) “Y luego fui en Espíritu; y he aquí, un trono que estaba puesto en el cielo, y sobre el trono estaba uno sentado… y alrededor del trono había veinticuatro sillas; y vi sobre las sillas veinticuatro ancianos sentados, vestidos de ropas blancas; y tenían sobre sus cabezas coronas de oro … Y siete lámparas de fuego estaban ardiendo delante del trono, las cuales son los siete Espíritus de Dios. Y delante del trono había como un mar de vidrio semejante al cristal, y en medio del trono, y alrededor del trono, cuatro seres vivientes llenos de ojos delante y detrás”. Apocalipsis 4:2, 4-6.
 
  -- {1trd 7}   
   
-  de oro … Y siete lámparas de fuego estaban ardiendo delante del trono, las cuales son los siete Espíritus de Dios. Y delante del trono había como un mar de vidrio semejante al cristal, y en medio del trono, y alrededor del trono, cuatro seres vivientes llenos de ojos delante y detrás”. Apocalipsis 4:2, 4-6.
+   (3) “Después me mostró un río limpio de agua de vida, resplandeciente como cristal, que salía del trono de Dios y del Cordero”. Apocalipsis 22:1.
 
-(3) “Después me mostró un río limpio de agua de vida, resplandeciente como cristal, que salía del trono de Dios y del Cordero”. Apocalipsis 22:1.
+ Por cuanto el trono visto por Isaías era un “_tren_” (séquito), y por cuanto al entrar en el templo, “los quiciales de las puertas se estremecieron con la voz del que clamaba, y la casa se llenó de humo” (Isaías 6:1, 4) se trata de un trono que viaja, mientras que ambos, el trono de Apocalipsis 4, teniendo el “_mar de vidrio_” delante de él, y el trono de Apocalipsis 22, teniendo el “_río … de vida_” delante de él, son tronos estacionarios.
 
-Por cuanto el trono visto por Isaías era un “_tren_” (séquito), y por cuanto al entrar en el templo, “los quiciales de las puertas se estremecieron con la voz del que clamaba, y la casa se llenó de humo” (Isaías 6:1, 4) se trata de un trono que viaja, mientras que ambos, el trono de Apocalipsis 4, teniendo el “_mar de vidrio_” delante de él, y el trono de Apocalipsis 22, teniendo el “_río … de vida_” delante de él, son tronos estacionarios.
-
-Aunque el que vio Ezequiel, es semejante al que se le mostró a Isaías, son realmente tronos distintos y separados porque cada uno de los “serafines” de la visión de Isaías tienen _seis alas_, mientras que cada uno de los “querubines” tiene solo _cuatro_. En el último, además, los querubines se encontraban debajo del trono, mientras que en el anterior, los serafines se ubicaban por encima del trono. Registrados en la Biblia, por lo tanto, hay cuatro tronos – dos inamovibles y dos movibles.
+ Aunque el que vio Ezequiel, es semejante al que se le mostró a Isaías, son realmente tronos distintos y separados porque cada uno de los “serafines” de la visión de Isaías tienen _seis alas_, mientras que cada uno de los “querubines” tiene solo _cuatro_. En el último, además, los querubines se encontraban debajo del trono, mientras que en el anterior, los serafines se ubicaban por encima del trono. Registrados en la Biblia, por lo tanto, hay cuatro tronos – dos inamovibles y dos movibles.
 
  -- {1trd 8}   
   
